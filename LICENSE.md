@@ -1,4 +1,4 @@
-
+Enhance Notion for macOS with updated Notion for macOS Tool | AI assistant + offline access, the #1 tool. Includes AI assistant and offline access for a smoother experience.
 
 
 
